@@ -1,1 +1,1 @@
-# mi-primer-repositoriox
+# mi-primer-repositorio
